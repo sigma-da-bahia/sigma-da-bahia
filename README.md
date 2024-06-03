@@ -1,16 +1,15 @@
-## Hi there 👋
+Olá sou a ana livia, tenho 16 year old
 
-<!--
-**sigma-da-bahia/sigma-da-bahia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Gosto de chuva e tempos cinzas 
 
-Here are some ideas to get you started:
+Faço curso de inglês nivel intermedíario 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Gosto do Brasil mais amo a vibe da américa 
+
+Minha série preferida é Supernatural 
+
+Sou apaixonada no Jads e Jdason 
+
+Sou louca por uma Ram 3500
+
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTDBsrwzxalv_gWgGe-TdfNz-9HNWqGaGYKPg&s)
